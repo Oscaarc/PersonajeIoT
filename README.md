@@ -18,3 +18,7 @@ Cargar una imagen con la foto del dibujo de tu personaje
 
 ## Comunicación
 
+## Arquitectura
+
+## Base de datos
+
