@@ -595,6 +595,11 @@ https://github.com/Oscaarc/PersonajeIoT/assets/153693807/a246f551-cb5f-4667-80e7
 https://github.com/Oscaarc/PersonajeIoT/assets/153693807/666e46b3-5df0-4824-8b58-d6d6d5da619b
 https://github.com/Oscaarc/PersonajeIoT/assets/153693807/7e172502-f1a2-43fc-a227-4768b6dabb50
 https://github.com/Oscaarc/PersonajeIoT/assets/153693807/81fd5b04-69fb-4bf1-a85e-ff87fd5e97cf
+![IMG-20231201-WA0021](https://github.com/Oscaarc/PersonajeIoT/assets/153693807/7792cc59-03ae-4efd-aa39-b2011fe074bc)
+![IMG-20231202-WA0052](https://github.com/Oscaarc/PersonajeIoT/assets/153693807/e11319c9-9ca5-44b8-a2c5-c19fbbfa2195)
+
+
+
 
 
 
